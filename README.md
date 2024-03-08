@@ -5,5 +5,5 @@
 
 
 
-
-- https://tenor.com/pt-BR/view/phil-foden-pew-pew-gif-16972524643418539320
+![](https://media1.tenor.com/m/64qFPSiGhTgAAAAd/phil-foden-pew-pew.gif)
+  
